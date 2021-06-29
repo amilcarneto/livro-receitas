@@ -2,6 +2,6 @@
 
 Bem vindo!
 
-- Pa
+- Pavezinho
 - Strogonoff de Frango
 - Pave
