@@ -2,6 +2,6 @@
 
 Bem vindo!
 
-- Pave2
+- Pa
 - Strogonoff de Frango
 - Pave
